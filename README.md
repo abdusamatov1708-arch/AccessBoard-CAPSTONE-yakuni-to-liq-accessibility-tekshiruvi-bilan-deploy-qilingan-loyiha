@@ -1,0 +1,1 @@
+# AccessBoard-CAPSTONE-yakuni-to-liq-accessibility-tekshiruvi-bilan-deploy-qilingan-loyiha
